@@ -7,8 +7,8 @@ Current Position Description
 
 ## Education
 
-`1990 - 1994`
-__University Name__
+`2014 - 2017`
+__George Washington University __
 Degree Awarded
 
 `1995 - 1997`
